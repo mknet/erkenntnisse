@@ -1,2 +1,2 @@
-# erkenntnisse
-Sammlung von (für mich) Wissenswertes und Geistreiches
+# Sammlung von Wissenswertem und Geistreichem
+
